@@ -37,14 +37,6 @@ Cho nên nói rằng, Trời với Đất là một bộ vị trên và dưới 
 Hỏa là triệu chứng của Âm và Dương. Âm ở bên trong nhờ có sự bảo vệ, giữ gìn của
 Dương ở bên ngoài, Dương ở bên ngoài nhờ sự sai khiến của Âm ở bên trong.
 
-Dương thắng thì mình nóng, tấu lý vít lấp, thở mạnh. Quá nóng mà hãn không ra
-thì sẽ bị răng se, khó cúi hoặc ngửa, tâm trạng phiền oán (bực dọc, nóng nảy);
-Chỉ qua được mùa Đông, không qua được mùa Hạ.
-
-Âm thắng thì mình lạnh, hãn ra, thở khó. Quá lạnh mà hãn ra không ngừng thì sẽ
-thành rét quyết, toàn thân mất sức, tâm trạng khủng hoảng (ưu tư, lo sợ); Chỉ
-qua được mùa Hạ, không qua được mùa Đông.
-
 Thần khí vốn là duy nhất, sinh ra ở Âm Tinh, mà về sau chia ra thành "tinh, khí,
 thần". Nếu không tham xét chỗ dị biệt mà chỉ quý cái đồng nhất, thì không nên
 tham trị mà chỉ nên làm cái việc "vô vi", vui cái yên "điềm đạm", thuận dục

@@ -24,25 +24,4 @@ Nằm sớm, dậy muộn, nên đợi lúc mặt trời mọc.
 Khiến cho "chí" như ẩn nấp, như giấu giếm.  
 Để cho khí của Tâm với Thận giao nhau.
 
-Làm trái khí mùa Xuân thì Thiếu Dương không thi triển được công năng sinh phát.
-Can khí sẽ uất mà biến bệnh.
-
-Làm trái khí mùa Hạ thì Thái Dương không thi triển được công năng trưởng dưỡng.
-Tâm khí sẽ bị rỗng không mà sinh bệnh.
-
-Làm trái khí mùa Thu thì Thái Âm không thi triển được công năng thâu liễm. Phế
-khí sẽ bị đầy trướng mà sinh bệnh.
-
-Làm trái khí mùa Đông thì Thiếu Âm không thi triển được công năng thâu tàng. Thận
-khí bị chìm lấp mà sinh bệnh.
-
-Thiên khí vốn trong sạch, sáng sủa, "tàng đức" vận động không ngừng, nên không
-cần phải giáng xuống mà cũng như giáng xuống. Nếu thiên khí không "tàng" mà lại
-sáng tỏ, thì nhật nguyệt sẽ không còn sáng, mà hư tà sẽ làm hại không khiếu.
-
-Nếu Dương khí bị vít lấp, thì Địa khí sẽ tràn ngập lên khiến cho mây mù đông
-đặc, bạch lộ không thể xuống, các loài cỏ cây cũng bị khô héo, úa vàng. Do đó,
-tặc phong, bạo vũ, dồn dập tới luôn. Cái khí hậu của bốn mùa cũng thành ra trái
-ngược lẫn lộn.
-
 [Chương 3: Sinh Khí Thông Thiên Luận &rarr;](https://github.com/semiarthanoian/sach-y-dich/blob/master/contents/03-sinh-khi-thong-thien-luan.md)
