@@ -1,4 +1,4 @@
-# Chương 9: Lục Tiết Tạng Tượng Luận
+# Chương 9: Lục Tiết Tàng Tượng Luận
 
 Trời do cái tiết "sáu sáu" để làm nên một năm.  
 Người do cái số "chín chín" để "chế hội".  
