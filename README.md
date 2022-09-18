@@ -13,4 +13,4 @@
 [Chương 8: Linh Lan Bĩ Điền Luận](https://github.com/semiarthanoian/sach-y-dich/blob/master/contents/08-linh-lan-bi-dien-luan.md)  
 [Chương 9: Lục Tiết Tàng Tượng Luận](https://github.com/semiarthanoian/sach-y-dich/blob/master/contents/09-luc-tiet-tang-tuong-luan.md)  
 
-> Trung chánh an định, tinh thần nội thủ, bệnh tật tự khỏi.
+> Nhược tâm kỳ hư, trung chánh an định, tinh thần nội thủ, bệnh tật tự khỏi.
